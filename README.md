@@ -6,7 +6,7 @@
 
 -💞️ I’m looking to collaborate on innovative AI projects, open-source machine learning frameworks, and research initiatives that push the boundaries of technology.
 
--📫 How to reach me: Feel free to connect with me via GitHub or reach out to me at kk1527218@gmail.com
+-📫 How to reach me: Feel free to connect with me via GitHub or reach out to me at attifkhan634@gmail.com
 
 -😄 Pronouns: He/Him
 
